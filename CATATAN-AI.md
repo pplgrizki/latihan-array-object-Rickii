@@ -1,0 +1,1 @@
+Mengetahui apa maksud dari sebagian yang kurang dipahami,dan mempelajari kosep serta fungsi kode tertentu
